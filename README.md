@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-MAGF040812MPLLNTA4
+MAGF040812MPLLNTA4
